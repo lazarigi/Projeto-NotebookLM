@@ -119,7 +119,9 @@ Divisão Semanal de Treino:
 * **Bebidas Alcoólicas**: **Corte ou reduza ao máximo o álcool**[43]. O álcool paralisa a síntese de massa muscular, causa retenção severa nos dias seguintes e entrega apenas calorias vazias[43].
 * **Refeição Livre**: Limite-se a **1 ou 2 refeições livres controladas no fim de semana** (ex: hambúrguer ou sobremesa), mantendo o resto do dia 100% dentro do planejamento[27].
 Com base nas suas medidas de **52 kg de peso e 1,64 m de altura**, você se enquadra no perfil de uma pessoa leve que precisa focar em **recomposição corporal** (ganhar massa muscular e eliminar a gordura localizada), sem aplicar restrições calóricas severas que causariam perda de musculatura e flacidez.
+## Fontes
 
+Mulher: de falsa magra a definida
 ---
 calcule as quantidades diárias exatas de carboidratos e proteínas ajustadas para meu peso atual 52 kg 164 de altura
 
@@ -155,3 +157,6 @@ calcule as quantidades diárias exatas de carboidratos e proteínas ajustadas pa
   * *Rendimento*: ~28 g de proteína / ~40 g de carboidrato
 
 *(Nota: Lembre-se de pesar os alimentos já prontos em uma balança de cozinha para ter precisão nos macronutrientes).*
+## Fontes
+
+barriga que não vai embora
